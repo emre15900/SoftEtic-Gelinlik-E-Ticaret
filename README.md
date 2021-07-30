@@ -1,0 +1,1 @@
+# SoftEtic-Gelinlik-E-Ticaret
